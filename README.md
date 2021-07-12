@@ -1,4 +1,4 @@
-😄 Hey, I'm Juliana from Brazil. I'm a formed Game Designer that used to work as social media in a PR agency focused on Games and Esports. I got some SEO and Digital Marketing skills because of it. Now I work as Junior IT Management Analyst at Itaú Unibanco.
+😄 Hey, I'm Juliana from Brazil. I'm a formed Game Designer that used to work as social media in a PR agency focused on Games and Esports. I got some SEO and Digital Marketing skills because of it. Now I work as Junior IT Management Analyst.
 
 ⚡ Fun Fact: 
 I consider myself an artist and I never thought I could work with coding someday. It all started when I had to deal with WordPress at my last job, after a while I noticed that some of the problems I was facing could be easily solved with coding. Then I decided to study coding just for fun (aka to feel like I could be able to have some logical reasoning).
